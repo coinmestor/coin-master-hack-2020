@@ -1,0 +1,1 @@
+# coin-master-hack-2020
